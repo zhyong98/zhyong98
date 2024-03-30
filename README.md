@@ -1,16 +1,20 @@
-### Hi there 👋
+### Hi baby 👋
 
-<!--
-**zhyong98/zhyong98** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+```
+最近是结婚领证的窗口期，前女友来问我是否爱她，要不要在一起。
+我说我爱你，但是我还不能和你结婚。
+她说为什么？
+我说，我现在已经有了最爱的人选择结婚。但是，如果未来有了新名额，我一定会优先跟你结婚。
+你是我所有前女友中，位置最靠前的。
+你是我所有当前不爱的人里面，曾经最喜爱的。
+你是我所有备胎中，看起来最主的那一个。
+你看不到这一切，但其实我已经给你写在了系统里，你一定要等我，为我厮守终身。
+前女友听完很感动，哭着说：
+我等你！那你什么时候会娶我呢？
+我说，等你到35岁的那一天吧，我一定会让你进入我的家。
+她说：是新家的那个家吗？
+我说：不，
+是M家的家。
+宝贝~
+你就是我的super B（备）呀。
+```
